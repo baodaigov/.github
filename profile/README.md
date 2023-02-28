@@ -7,4 +7,4 @@
 <br/><hr/>
 🌐Website chính thức: https://baodaigov.github.io<br/>
 📧Email: baodaigov@gmail.com<br/>
-☎️Call: 682-310-1496<br/>
+☎️Call: +1 (682) 310-1496<br/>
